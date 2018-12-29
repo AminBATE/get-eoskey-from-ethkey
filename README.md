@@ -5,5 +5,5 @@
 
 
 
-> visit http://getfallbackeos.mytokenpocket.vip/
+> visit https://getfallbackeos.ganb.cc/
 
